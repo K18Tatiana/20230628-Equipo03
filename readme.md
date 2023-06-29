@@ -1,4 +1,4 @@
 # **Tatiana Vega**
 ## Colombia
 
-Colombia :colombia:
+Colombia :two_hearts:
