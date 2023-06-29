@@ -1,1 +1,1 @@
-Tatiana Vega - Luis Ojeda
+Tatiana Vega - Luis Ojeda - David Blanco
