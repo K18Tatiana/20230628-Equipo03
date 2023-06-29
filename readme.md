@@ -1,2 +1,2 @@
 
-Tatiana Vega - Luis Ojeda - David Blanco - Alejandro Ucan - Bryan Lopez
+Tatiana Vega - Luis Ojeda - David Blanco - Alejandro Ucan - Bryan Lopez - Lucia Bessio -
